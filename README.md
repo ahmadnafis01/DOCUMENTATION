@@ -12,6 +12,7 @@ Judges were confirmed and joined from prominent companies such as BAT, Standard 
 
 Design Creator & Content Editor
 <img width="1757" height="612" alt="Screenshot (167)" src="https://github.com/user-attachments/assets/d84ec556-ad84-4d25-82c2-9205ad3c697e" />
+<img width="1765" height="599" alt="Screenshot (172)" src="https://github.com/user-attachments/assets/dabed04d-a343-403f-a985-35731387c32d" />
 <img width="1759" height="591" alt="Screenshot (168)" src="https://github.com/user-attachments/assets/e7973220-e100-49a0-97a6-312a9da5fd75" />
 Invitation Card
 <img width="1698" height="392" alt="Screenshot (170)" src="https://github.com/user-attachments/assets/a0d96901-cc4c-48d9-8f0e-abbfe00b0282" />
