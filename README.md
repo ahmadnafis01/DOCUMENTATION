@@ -8,7 +8,7 @@
 <img width="1348" height="593" alt="Screenshot (166)" src="https://github.com/user-attachments/assets/de10f798-4048-4b4f-9935-6f659576656a" />
 
 # Judge and Guest Invitation Letter for Nation's Largest HR-based Business Competition - 2024
-Judges were confirmed and joined from prominent companies such as BAT, Standard Chartered, Unilever, Nestlé, Reckitt, Robi, Marico, Grameenphone, and Chevron, among others. 
+(Judges were confirmed and joined from prominent companies such as BAT, Standard Chartered, Unilever, Nestlé, Reckitt, Robi, Marico, Grameenphone, and Chevron, among others.) 
 
 # Content Design Creator & Editor
 Guest Invitation Letter
