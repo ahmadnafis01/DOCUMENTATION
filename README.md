@@ -7,5 +7,10 @@ Content Planner & Designer
 <img width="1790" height="616" alt="Screenshot (165)" src="https://github.com/user-attachments/assets/350bab6a-224e-414e-ad04-3c776bcbe8da" />
 <img width="1348" height="593" alt="Screenshot (166)" src="https://github.com/user-attachments/assets/de10f798-4048-4b4f-9935-6f659576656a" />
 
-# Sponsorship Proposal & Agreement Letter for Nation's Largest HR-based Business Competition - 2024
+# Judge and Guest Invitation Letter for Nation's Largest HR-based Business Competition - 2024
+Judges were confirmed and joined from prominent companies such as BAT, Standard Chartered, Unilever, Nestlé, Reckitt, Robi, Marico, Grameenphone, and Chevron, among others. 
 Design Creator & Content Editor
+<img width="1757" height="612" alt="Screenshot (167)" src="https://github.com/user-attachments/assets/d84ec556-ad84-4d25-82c2-9205ad3c697e" />
+<img width="1759" height="591" alt="Screenshot (168)" src="https://github.com/user-attachments/assets/e7973220-e100-49a0-97a6-312a9da5fd75" />
+Invitation Card
+<img width="1698" height="392" alt="Screenshot (170)" src="https://github.com/user-attachments/assets/a0d96901-cc4c-48d9-8f0e-abbfe00b0282" />
